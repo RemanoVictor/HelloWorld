@@ -2,11 +2,4 @@
 just another repository
 
 
-
-
-
-
-
-
-
-yeah so i like kittens and coding even though ive never done it before!
+i like kittens and coding even though i have never coded in my life before.
